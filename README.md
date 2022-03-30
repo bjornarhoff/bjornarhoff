@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bjornarhoff
-- 👀 TECHNOLOGY
+- 👀 TECHNOLOGY IS FUN 
 - 📫 https://www.linkedin.com/in/bj%C3%B8rnar-hoff-46b8a9166
 
 <!---
